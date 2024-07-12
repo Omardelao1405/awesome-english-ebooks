@@ -1,5 +1,5 @@
 # 经济学人、纽约客等英语外刊杂志下载
----------------------
+----https://translate.google.com.mx/?hl=es&sl=auto&tl=es&text=%20%20%20%20 insignia%3A%20 payload.data.badge%20%7C%7C%20%2----------------
 
 ## 一、优质App推荐
 
